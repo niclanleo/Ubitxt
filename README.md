@@ -7,5 +7,7 @@
 我等謙卑領受奇蹟，樂將恩典共福齊利。
 
 https://niclan809.medium.com/
+
 https://www.threads.com/@niclanleo
+
 https://www.facebook.com/Brainmenleo/
